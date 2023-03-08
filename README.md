@@ -1,10 +1,5 @@
 # Ron Albert - Sarigumba
-## My Dislikes:
-## English
-## Math
-## Being late
-## Out of money
-## Cold weather
+## Teacher: Sino pumatay ka Lapu-Lapu? Juan: Aba hindi ako sir magkasama tayo ngayon
 ### List of the Names of My Group Member:
 ### Jeza Mae Salazar
 ### John Mhico Tutor
